@@ -22,6 +22,10 @@
 [learn-sanskrit 20 months](http://agniveer.com/learn-sanskrit-month-1/)
 [samskrittutorial](https://www.samskrittutorial.in/class_one#)
 
+# Papers 
+
+http://www.ece.lsu.edu/kak/bhate.pdf
+
 # Misc 
 [1 - 12th grade snaskrit classes](https://www.samskrittutorial.in/)
 
