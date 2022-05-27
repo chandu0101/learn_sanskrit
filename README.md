@@ -8,7 +8,7 @@
 
 [Samskrit Tutorial from basics](https://www.youtube.com/channel/UCoclMiXGII5cOSQNIPBK-jQ/playlists)
 
-[Sanskrit Club IIT Roorkee] https://www.youtube.com/user/sanskritiitr/playlists
+[Sanskrit Club IIT Roorkee](https://www.youtube.com/user/sanskritiitr/playlists)
 
 
 # Links 
