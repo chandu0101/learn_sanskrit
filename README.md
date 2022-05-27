@@ -8,6 +8,8 @@
 
 [Samskrit Tutorial from basics](https://www.youtube.com/channel/UCoclMiXGII5cOSQNIPBK-jQ/playlists)
 
+[Sanskrit Club IIT Roorkee] https://www.youtube.com/user/sanskritiitr/playlists
+
 
 # Links 
 [/sanskrit.samskrutam aggregator](http://sanskrit.samskrutam.com/en.sanskrit-indology-directory-websites.ashx)
