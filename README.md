@@ -25,6 +25,7 @@ https://openpathshala.com/
 [simplesanskrit.wordpress.com lessons](https://simplesanskrit.wordpress.com/category/lessons-1-to-10/lesson-2/)
 [learn-sanskrit 20 months](http://agniveer.com/learn-sanskrit-month-1/)
 [samskrittutorial](https://www.samskrittutorial.in/class_one#)
+[samskritpromotion](https://www.samskritpromotion.in/)
 
 # Papers 
 
@@ -38,3 +39,5 @@ http://www.ece.lsu.edu/kak/bhate.pdf
 
 # Note : 
 hold for now will resume later in future :) 
+
+
