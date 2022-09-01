@@ -10,6 +10,7 @@
 
 [Sanskrit Club IIT Roorkee](https://www.youtube.com/user/sanskritiitr/playlists)
 
+[Sanskrit.Today](https://www.youtube.com/c/SanskritToday/playlists)
 
 # Links 
 [/sanskrit.samskrutam aggregator](http://sanskrit.samskrutam.com/en.sanskrit-indology-directory-websites.ashx)
