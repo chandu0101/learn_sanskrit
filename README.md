@@ -17,6 +17,8 @@
 # Links 
 [/sanskrit.samskrutam aggregator](http://sanskrit.samskrutam.com/en.sanskrit-indology-directory-websites.ashx)
 
+https://samskrittutorial.in/
+
 https://openpathshala.com/
 
 # Grammar 
