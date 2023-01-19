@@ -38,6 +38,7 @@ http://www.ece.lsu.edu/kak/bhate.pdf
 
 # Misc 
 [1 - 12th grade snaskrit classes](https://www.samskrittutorial.in/)
+
 https://vedicheritage.gov.in/vedangas/
 
 # Dictionaries
