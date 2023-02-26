@@ -23,6 +23,8 @@ https://samskrittutorial.in/
 
 https://openpathshala.com/
 
+https://www.quora.com/Why-can%E2%80%99t-we-make-an-operating-system-in-Sanskrit-like-Microsoft-Windows-in-English
+
 # Grammar 
 [learnsanskrit.org](http://www.learnsanskrit.org/)
 
