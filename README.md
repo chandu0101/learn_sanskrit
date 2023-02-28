@@ -39,6 +39,7 @@ https://www.quora.com/Why-can%E2%80%99t-we-make-an-operating-system-in-Sanskrit-
 # Papers 
 
 http://www.ece.lsu.edu/kak/bhate.pdf
+https://www.rsisinternational.org/conference/4ICMRP2017/papers/179-184.pdf
 
 # Misc 
 [1 - 12th grade snaskrit classes](https://www.samskrittutorial.in/)
