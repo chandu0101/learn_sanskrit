@@ -52,4 +52,7 @@ https://vedicheritage.gov.in/vedangas/
 # Note : 
 hold for now will resume later in future :) 
 
+# Programming languages
+
+https://github.com/vedic-lang/vedic
 
