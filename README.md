@@ -16,6 +16,8 @@
 
 https://www.samskritabharati.in/
 
+https://learn.practicalsanskrit.com/home
+
 
 # Links 
 [/sanskrit.samskrutam aggregator](http://sanskrit.samskrutam.com/en.sanskrit-indology-directory-websites.ashx)
