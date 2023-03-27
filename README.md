@@ -66,3 +66,7 @@ hold for now will resume later in future :)
 https://github.com/vedic-lang/vedic
 
 https://omlang.com/
+
+# Papers
+
+https://epapersudharmasanskritdaily.in/#
