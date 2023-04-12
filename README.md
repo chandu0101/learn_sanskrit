@@ -53,6 +53,8 @@ https://ijiset.com/vol2/v2s4/IJISET_V2_I4_176.pdf
 # Misc 
 [1 - 12th grade snaskrit classes](https://www.samskrittutorial.in/)
 
+https://www.sanskritfromhome.org/
+
 https://vedicheritage.gov.in/vedangas/
 
 # Dictionaries
