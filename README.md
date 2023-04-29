@@ -18,6 +18,8 @@ https://www.samskritabharati.in/
 
 https://learn.practicalsanskrit.com/home
 
+https://www.cambridge-sanskrit.org/video-resources/
+
 
 # Links 
 [/sanskrit.samskrutam aggregator](http://sanskrit.samskrutam.com/en.sanskrit-indology-directory-websites.ashx)
