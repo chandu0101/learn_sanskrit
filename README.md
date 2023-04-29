@@ -21,6 +21,8 @@ https://learn.practicalsanskrit.com/home
 https://www.cambridge-sanskrit.org/video-resources/
 
 
+
+
 # Links 
 [/sanskrit.samskrutam aggregator](http://sanskrit.samskrutam.com/en.sanskrit-indology-directory-websites.ashx)
 
@@ -54,6 +56,7 @@ https://ijiset.com/vol2/v2s4/IJISET_V2_I4_176.pdf
 
 # Misc 
 [1 - 12th grade snaskrit classes](https://www.samskrittutorial.in/)
+[THE IMPERISHABLE SEED: How Hindu Mathematics Changed the World and Why this History was Erased](https://garudabooks.com/the-imperishable-seed)
 
 https://www.sanskritfromhome.org/
 
