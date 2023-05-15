@@ -67,6 +67,9 @@ https://www.sanskritimagazine.com/?fbclid=IwAR3RNF5h4D695yKFJ5O4gK2VT0CSVAEFdk-z
 
 https://joyofsanskrit.org/
 
+https://play.google.com/store/apps/developer?id=Samskrit+Promotion+Foundation
+
+
 
 # Dictionaries
 [Telugu <-> Sanskrit](https://glosbe.com/te/sa/%E0%B0%85%E0%B0%82%E0%B0%97%E0%B0%BE%E0%B0%B0%E0%B0%95%E0%B1%81%E0%B0%A1%E0%B1%81)
