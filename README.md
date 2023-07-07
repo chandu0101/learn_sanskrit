@@ -63,6 +63,8 @@ https://ijiset.com/vol2/v2s4/IJISET_V2_I4_176.pdf
 
 https://www.sanskritfromhome.org/
 
+https://csu.learnsamskrit.online/
+
 https://vedicheritage.gov.in/vedangas/
 
 https://www.sanskritimagazine.com/?fbclid=IwAR3RNF5h4D695yKFJ5O4gK2VT0CSVAEFdk-zdzOKyIEJxgq8RXAMRCGQfA8
