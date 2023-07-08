@@ -67,6 +67,8 @@ https://csu.learnsamskrit.online/
 
 https://vedicheritage.gov.in/vedangas/
 
+https://www.sanskritolympiad.in/
+
 https://www.sanskritimagazine.com/?fbclid=IwAR3RNF5h4D695yKFJ5O4gK2VT0CSVAEFdk-zdzOKyIEJxgq8RXAMRCGQfA8
 
 https://joyofsanskrit.org/
