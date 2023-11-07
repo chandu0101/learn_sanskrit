@@ -81,6 +81,8 @@ https://www.learnsanskrit.online/
 
 https://learnsamskrit.online/
 
+https://samvardhini.in/
+
 # Dictionaries
 [Telugu <-> Sanskrit](https://glosbe.com/te/sa/%E0%B0%85%E0%B0%82%E0%B0%97%E0%B0%BE%E0%B0%B0%E0%B0%95%E0%B1%81%E0%B0%A1%E0%B1%81)
 
