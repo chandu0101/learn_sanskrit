@@ -65,6 +65,8 @@ https://www.sanskritfromhome.org/
 
 https://csu.learnsamskrit.online/
 
+https://www.madrassanskritcollege.edu.in/
+
 https://vedicheritage.gov.in/vedangas/
 
 https://www.sanskritolympiad.in/
