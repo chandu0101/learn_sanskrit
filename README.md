@@ -98,6 +98,7 @@ hold for now will resume later in future :)
 # Programming languages
 
 https://github.com/vedic-lang/vedic
+https://www.linkedin.com/pulse/%E0%A4%B8%E0%A4%B8%E0%A4%95%E0%A4%A4-based-os-fusing-ancient-wisdom-modern-security-vikas-sharma/
 
 https://omlang.com/
 
