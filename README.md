@@ -63,6 +63,8 @@ https://ijiset.com/vol2/v2s4/IJISET_V2_I4_176.pdf
 
 https://www.sanskritfromhome.org/
 
+https://www.sanskritolympiad.in/
+
 https://csu.learnsamskrit.online/
 
 https://www.madrassanskritcollege.edu.in/
