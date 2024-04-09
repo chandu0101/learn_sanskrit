@@ -42,10 +42,15 @@ https://samskritpromotion.in/
 # Books 
 
 [thesanskritlanguage - online](https://www.thesanskritlanguage.com/)
+
 [simplesanskrit.wordpress.com lessons](https://simplesanskrit.wordpress.com/category/lessons-1-to-10/lesson-2/)
+
 [learn-sanskrit 20 months](http://agniveer.com/learn-sanskrit-month-1/)
+
 [samskrittutorial](https://www.samskrittutorial.in/class_one#)
+
 [samskritpromotion](https://www.samskritpromotion.in/)
+
 https://sales.csu-publications.co.in/
 
 
