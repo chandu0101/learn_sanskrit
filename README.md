@@ -46,6 +46,7 @@ https://samskritpromotion.in/
 [learn-sanskrit 20 months](http://agniveer.com/learn-sanskrit-month-1/)
 [samskrittutorial](https://www.samskrittutorial.in/class_one#)
 [samskritpromotion](https://www.samskritpromotion.in/)
+https://sales.csu-publications.co.in/
 
 
 
